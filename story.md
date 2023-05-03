@@ -1,0 +1,1 @@
+There once was a boy names Jeff. He was on his way to school when he saw an ice cream stand. He stopped and starred at the ice cream. He decided to go back home and steal some money to buy some ice cream.
